@@ -1,1 +1,0 @@
-# Front-school-blank
